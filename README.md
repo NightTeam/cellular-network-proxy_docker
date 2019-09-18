@@ -8,7 +8,7 @@
 
 欢迎关注微信公众号「**NightTeam** 」，更多高质量原创文章都在这里。
 
-<img src="https://i.loli.net/2019/09/18/JRQVF2Em16BPta4.jpg" alt="扫码关注公众号" style="zoom: 25%;" />
+![扫码关注公众号](https://i.loli.net/2019/09/18/hyxgIA2i5B3d6Ol.jpg)
 
 #### 使用方法
 
